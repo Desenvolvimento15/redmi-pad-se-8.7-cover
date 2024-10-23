@@ -1,0 +1,1 @@
+# redmi-pad-se-8.7
